@@ -5,7 +5,10 @@ Link yt tham khảo :
 - https://youtube.com/playlist?list=PLOP3blM5gI19tdhAUNU7iUqlxrT0jSSNx&si=AH4p65lCwcCBhDI_   
 - Học tập Channel  
 Nhấn "Star" để lưu lại nhé, cảm ơn ae!
-Update:
-- Bài 1.5 + 1.6 có lỗi lặt vặt ( ko được max điểm ) -> ae làm kĩ nhé!
+
+
+Update:  
+- Bài 1.5 + 1.6 có lỗi lặt vặt ( ko được max điểm ) -> ae làm kĩ nhé!  
 - Bài 3.4 + 4.2 lý thuyết sơ sài -> ae bổ sung nhé!
+  
   
